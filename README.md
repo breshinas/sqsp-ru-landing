@@ -1,1 +1,1 @@
-# [sqsp.ru](sqsp.ru) landing
+# [sqsp.ru](https://sqsp.ru) landing
